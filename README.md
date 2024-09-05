@@ -1,4 +1,4 @@
-![WhatsApp Image 2024-09-06 at 02 36 49_dd4f8124](https://github.com/user-attachments/assets/9d2f4980-2569-439c-9673-9b776d3b054c)![WhatsApp Image 2024-09-06 at 02 36 49_6b467c0a](https://github.com/user-attachments/assets/99c65ab1-2907-4987-8267-2cf0bc177c58)# MUJHackX2.0-Soul-Bytes
+# MUJHackX2.0-Soul-Bytes
 
 ## Website
 
